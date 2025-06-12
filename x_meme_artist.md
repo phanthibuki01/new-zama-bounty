@@ -12,3 +12,5 @@
 
 ## 🟨 You will unlock:
 ✔️ Earn 40–200 points (40 base + quality bonus up to x5)
+
+🟨 Note: The Zama team will review submissions and award points by the end of each month.
