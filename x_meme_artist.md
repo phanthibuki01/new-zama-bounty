@@ -11,3 +11,4 @@
 4. Share the link with the community in #creator-program-link on Discord. (optional)
 
 ## 🟨 You will unlock:
+✔️ Earn 40–200 points (40 base + quality bonus up to x5)
